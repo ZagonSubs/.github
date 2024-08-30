@@ -1,5 +1,5 @@
 ¡Hola!
-Este es ZagonSubs, un fansub hispanohablante no muy rápido que principalmente traduce animes, aunque ocacionalmente también traduce otros tipos de animación originarios fuera de Japón.
+Este es ZagonSubs, un fansub hispanohablante no muy rápido que principalmente traduce animes, aunque ocasionalmente también traduce otros tipos de animación originarios fuera de Japón.
 
 El "grupo" no tiene miembros o staff en sí. Es conformado por Zagon (dueño y traductor) y otras maravillosas personas que apoyan al proyecto, las cuales pertenecen a diferentes grupos, como [Kuro Diamond Subs](https://www.kurodiamondsubs.xyz), [Zero-Anime](zeroanime20.files.wordpress.com/) y [Kakumei Subs](https://kakumeisubs.com).
 
